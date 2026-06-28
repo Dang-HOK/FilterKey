@@ -27,4 +27,4 @@
 
 ## 저작권
 
-© 2026 jmkim0718. All rights reserved.
+© 2026 DHOK. All rights reserved.
